@@ -23,6 +23,7 @@ Because you can bet that those on the other side will distort history and rewrit
 Fellow Bitcoiners, this Declaration is our document and our account of what happened. Let us put it plainly before the world and preserve it for history to examine and judge. Let it record what brought us to this point, what we stood for, what we refused to surrender, and why, on September 1, 2026, we declare our independence.
 
 Yours Truly,
+
 Fellow Bitcoiner
 
 
